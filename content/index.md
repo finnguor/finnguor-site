@@ -17,16 +17,21 @@ you can find my content in the sidebar on the left :] the site is still under co
 ##### i am currently:
 - listening to 
 	> s u m m e r by casio dad
+	> 
 	> glhf <3 by mico
+	> 
 	> dear hank & john
+	> 
 	> naddpod
 - reading 
 	> sweet bean paste by durian sukegawa.
-+ rereading 
-> 	the beartown trilogy by fredrik backman.
++ rereading
+	> the beartown trilogy by fredrik backman.
 - working on 
 	> ideas for combatting loneliness as a student who lives off-campus.
+	> 
 	> the ideal rosé tteokbokki recipe.
+	> 
 	> also, staying alive in my first term of university.`
 ###### p.s. DFTBA !
 
