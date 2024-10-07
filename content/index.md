@@ -10,7 +10,7 @@ tags:
 
 ##### i also study systems design engineering at the university of waterloo !
 
-I'm currently looking for a 2025 Jan-Apr co-op job! please PLEASE let me know if you or anyone you know is hiring :']
+> I'm currently looking for a 2025 Jan-Apr co-op job! please PLEASE let me know if you or anyone you know is hiring :']
 ##### in my free time (which I wish I had more of) i write, cook, yap, and try my best to be a functional human being. i use he/him !
 ### welcome to my digital garden :]
 
