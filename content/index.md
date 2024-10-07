@@ -10,6 +10,8 @@ tags:
 
 ##### i also study systems design engineering at the university of waterloo!
 
-##### in my free time (which I wish I had more of) I write, cook, yap, and try my best to be a functional human being.
+##### in my free time (which I wish I had more of) i write, cook, yap, and try my best to be a functional human being.
 ### welcome to my connection of notes and written pieces :) 
+
+
 
