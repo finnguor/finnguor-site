@@ -33,6 +33,8 @@ you can find my content in the sidebar on the left :] the site is still under co
 	> the ideal rosé tteokbokki recipe.
 	> 
 	> also, staying alive in my first term of university.
+	
+connect with me on [twitter (x)](https://x.com/finnguor) or [linkedin](https://www.linkedin.com/in/finn-guo-1bba89205/) or discord (@chocopaiboy) :]
 ###### p.s. DFTBA ! [^1]
 
 ###### p.p.s. I'm currently looking for a 2025 Jan-Apr co-op job! let me know if you or anyone you know is hiring :]
