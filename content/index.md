@@ -32,7 +32,9 @@ you can find my content in the sidebar on the left :] the site is still under co
 	> 
 	> the ideal rosé tteokbokki recipe.
 	> 
-	> also, staying alive in my first term of university.`
-###### p.s. DFTBA !
+	> also, staying alive in my first term of university.
+###### p.s. DFTBA ! [^1]
 
 ###### p.p.s. I'm currently looking for a 2025 Jan-Apr co-op job! let me know if you or anyone you know is hiring :]
+
+[^1]: don't forget to be awesome !
