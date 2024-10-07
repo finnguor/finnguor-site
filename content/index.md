@@ -10,10 +10,11 @@ tags:
 
 ##### i also study systems design engineering at the university of waterloo !
 
+I'm currently looking for a 2025 Jan-Apr co-op job! please PLEASE let me know if you or anyone you know is hiring :']
 ##### in my free time (which I wish I had more of) i write, cook, yap, and try my best to be a functional human being. i use he/him !
-### welcome to my connection of notes and written pieces :]
+### welcome to my digital garden :]
 
-you can find my content in the sidebar on the left :] the site is still under construction, so stay tuned for more of my writes !
+you can find my content in the sidebar on the left :] the site is still under construction, so stay tuned for more of my writes and other things !
 ##### i am currently:
 - listening to 
 	> s u m m e r by casio dad
@@ -34,9 +35,6 @@ you can find my content in the sidebar on the left :] the site is still under co
 	> 
 	> also, staying alive in my first term of university.
 	
-connect with me on [twitter (x)](https://x.com/finnguor) or [linkedin](https://www.linkedin.com/in/finn-guo-1bba89205/) or discord (@chocopaiboy) :]
-###### p.s. DFTBA ! [^1]
-
-###### p.p.s. I'm currently looking for a 2025 Jan-Apr co-op job! let me know if you or anyone you know is hiring :]
+connect with me on [twitter (x)](https://x.com/finnguor) or [linkedin](https://www.linkedin.com/in/finn-guo-1bba89205/) or discord (@chocopaiboy) :] DFTBA ! [^1]
 
 [^1]: don't forget to be awesome !
