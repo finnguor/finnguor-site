@@ -1,0 +1,8 @@
+---
+title: traffic lights
+draft: false
+tags:
+  - writes
+  - transport
+---
+My childhood home was situated next to a main road, where I could stare out my bedroom window at the lanes of traffic, the cars of various colours, the double-decker GO buses - even as such a major road though, with only three lanes on either side, I can't recall a moment where I looked outside and remarked that traffic had been clogged. Always, always, the lights would turn green just as cars started to pile up, and the countdown for the flashing red hand pedestrians used always had just enough numbers so that it would turn solid as the people finished crossing the road. As I grew up I had less and less time to idle at the window and watch the passing traffic, but even so, my life continued to be impacted by the patterns of traffic lights - seemingly random to me at first, but more and more logical as I took to the streets on my bike as I grew older, and had to learn when it was safe to pass an intersection because a particular countdown would be really long, and when it would be better to wait. I've realized, since childhood, the logic of the lights - the left turn arrows activating at peak commute times, the countdowns that last longer than normal at a certain intersection because of the retirement home right on the corner of the street, the lights that won't even turn red if they detect no one going the other way. The traffic lights have always intrigued me, and after almost two decades of observing them, as a kid in my house, or while biking to school or work, I hope I can learn Waterloo's roads better too, and continue my pursuit of interesting stoplight phenomena. 
