@@ -1,8 +1,7 @@
 ---
 title: wtf man
 draft: false
-tags:
-  - auugh
+tags: []
 ---
 dfasfdsfadsfsad
 
